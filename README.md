@@ -139,7 +139,7 @@ Data Analytics & Business Intelligence Portfolio
 
 - GitHub: [RezaPutra14](https://github.com/RezaPutra14)
 - Project Repository: [Retail Insights & Analytics](https://github.com/RezaPutra14/retail-insights-analytics)
-- LinkedIn: (https://www.linkedin.com/in/reza-pangestu-sukarno-putra-03571636b?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
+- LinkedIn: [Reza Pangestu](https://www.linkedin.com/in/reza-pangestu-sukarno-putra-03571636b/)
 - Email: rezasukarno14@gmail.com
 
 ---
